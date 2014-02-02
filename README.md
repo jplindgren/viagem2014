@@ -24,21 +24,21 @@ Belgica?
 ###Sugestões para pensar??
 Rota Romantica saindo Frankfurt --> Munich
 Links: 
-*http://www.romanticroadgermany.com/
-*http://selfdrive.com.br/2013/11/08/alemanha-rota-dos-castelos/
-*http://milhasapercorrer.blogspot.com.br/2011/03/rota-romantica-na-alemanha.html
+* http://www.romanticroadgermany.com/
+* http://selfdrive.com.br/2013/11/08/alemanha-rota-dos-castelos/
+* http://milhasapercorrer.blogspot.com.br/2011/03/rota-romantica-na-alemanha.html
 
 Cidades:
-*Frankfurt
-*Ruedesheim
-*Heidelberg
-*Bad Rappenau
-*Rothenburg
-*Nuremberg
-*Landshut
-*Oberammergau 
-*Neuschwanstein 
-*Munique 
+* Frankfurt
+* Ruedesheim
+* Heidelberg
+* Bad Rappenau
+* Rothenburg
+* Nuremberg
+* Landshut
+* Oberammergau 
+* Neuschwanstein 
+* Munique 
 
 Outra opção seria ir de trem até munique e fazer entorno (incluindo Dachau) e voltar.
   
