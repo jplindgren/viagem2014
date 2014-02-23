@@ -11,6 +11,9 @@ Lisboa -> Berlin -> **qua 14 mai 2014 05:45 – 09:05 (BRT)**
 Brussels BRU -> Lisboa **sex 30 mai 2014 07:30 – 10:15 (BRT)**
 Lisboa -> Rio de Janeiro **sex 30 mai 2014 12:05 – 21:05 (BRT)**
 
+### Berlin -> Munique: **segunda 19 de mai 2014 09:15 - 10:30**
+
+
 
 ###Hospedagem
 Berlin -> casa João Vítor
