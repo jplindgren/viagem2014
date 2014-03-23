@@ -16,12 +16,15 @@ Lisboa -> Rio de Janeiro **sex 30 mai 2014 12:05 – 21:05 (BRT)**
 
 
 ###Hospedagem
-Berlin -> casa João Vítor
-Interior Alemanha?
+Berlin -> 14 de maio de 2014 - 19 de maio de 2014  -> casa João Vítor
+
+Munique -> 19 de maio de 2014 - 23 de maio de 2014
+
+Frankfurt -> 24 de maio de 2014 - 25 de maio de 2014
 
 Amsterdam -> 25 de Maio de 2014 - 27 de Maio de 2014 
 
-Belgica?
+Belgica -> 27 de maio de 2014 - 30 de maio de 2014
 
 
 
