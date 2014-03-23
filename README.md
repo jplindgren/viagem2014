@@ -20,9 +20,9 @@ Berlin -> 14 de maio de 2014 - 19 de maio de 2014  -> casa João Vítor
 
 Munique -> 19 de maio de 2014 - 23 de maio de 2014
 
-Frankfurt -> 24 de maio de 2014 - 25 de maio de 2014
+Frankfurt -> 23 de maio de 2014 - 24 de maio de 2014
 
-Amsterdam -> 25 de Maio de 2014 - 27 de Maio de 2014 
+Amsterdam -> 24 de Maio de 2014 - 27 de Maio de 2014 
 
 Belgica -> 27 de maio de 2014 - 30 de maio de 2014
 
